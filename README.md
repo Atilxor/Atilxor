@@ -4,7 +4,7 @@
 [![](https://visitcount.itsvg.in/api?id=Atilxor&icon=0&color=4)](https://visitcount.itsvg.in)
 
 # 💫 About Me:
-🔭 I’m currently working on **PURSUIT AssettoCorsa Server**<br><br>👯 I’m looking to collaborate on **To produce game plugins and scripts**<br><br>📫 How to reach me **atilamilanii@gmail.com**<br><br>⚡ Fun fact **There is nothing I can't do**<br>
+🔭 I’m currently working on **PURSUIT AssettoCorsa Server**<br><br>👯 I’m looking to collaborate on **To produce game plugins and scripts**<br><br>📫 How to contact me **atilamilanii@gmail.com**<br><br>⚡ Fun fact **There is nothing I can't do**<br>
 
 ---
 
